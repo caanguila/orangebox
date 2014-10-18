@@ -9,4 +9,4 @@
 
 > Contact with us Right now! :smiley:
 
-![Orange Box Template](https://www.dropbox.com/s/i2vkx8x7xfmw9dx/img.png "Screenshot")
+![Orange Box Template](https://www.dropbox.com/s/i2vkx8x7xfmw9dx/img.png?dl=0 "Screenshot")
